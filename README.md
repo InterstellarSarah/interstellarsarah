@@ -6,6 +6,6 @@
 
 🚧🚧🚧 under maintenance 🚧🚧🚧
 
-<img src="https://i.pinimg.com/originals/52/c4/d5/52c4d55c27725df1b0a35178ad7cbc08.gif" width="500" height="400" />
+<img src="https://i.pinimg.com/originals/52/c4/d5/52c4d55c27725df1b0a35178ad7cbc08.gif" width="600" height="400" />
           
           
